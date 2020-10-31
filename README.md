@@ -1,1 +1,0 @@
-# greenmanyt.github.io
